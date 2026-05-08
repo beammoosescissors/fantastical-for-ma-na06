@@ -1,4 +1,4 @@
-
+Get the ultimate Fantastical for macOS integration with Fantastical for macOS vip Integration - OCR scanning and AI assistant. Featuring OCR scanning and AI assistant, it's the
 
 
 
